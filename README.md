@@ -3,7 +3,7 @@
 📞 9360509044  
 ✉️ pradeepmanickam28@gmail.com  
 📍 Coimbatore  
-🔗 [LinkedIn](https://www.linkedin.com/in/pradeep-m-032a92260) | 🔗 [GitHub](https://github.com/PRADEEP07M/PRADEEP_M)
+🔗 [LinkedIn](https://www.linkedin.com/in/pradeep-m-032a92260) 
 
 ---
 
